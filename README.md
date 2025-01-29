@@ -1,4 +1,4 @@
-# Kids Game Station PLR Review OTO and Training Features
+# Kids Game Station PLR Review OTO and Training Features Bonus
 ### What Is Kids Game Station PLR?
 Introducing Kids Game Station PLR — Its your gateway to an extraordinary collection of 15 captivating Canva kids’ games with full PLR rights, featuring over 500 quizzes across diverse categories. 
 This ready-made assortment is designed to entertain and stimulate young minds, providing endless fun that kids will adore. 
